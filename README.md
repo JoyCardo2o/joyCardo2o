@@ -1,16 +1,13 @@
-### Hi there 👋
+Boas vindas ao meu perfil
 
-<!--
-**JoyCardo2o/joyCardo2o** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Me chamo Joyce Cardoso;
 
-Here are some ideas to get you started:
+Estou cursando o 2º ano doo ensino médio, tambem estou cursando o projeto alura entre outras curso;
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Vim aqui para compartilha com vocês o meu projeto;
+
+Você pode entrar em contato comigo📫👇
+
+00001114039512sp@al.educacao.sp.gov.br
+
+Beijos aproveitem meu perfil; 😘😘
